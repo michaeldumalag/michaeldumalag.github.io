@@ -1,1 +1,0 @@
-# michaeldumalag.github.io
